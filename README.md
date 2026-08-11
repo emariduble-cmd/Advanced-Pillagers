@@ -1,2 +1,2 @@
 # Advanced-Pillagers
-Here you can report bugs or submit me ideas for the mod
+Here you can submit me ideas for the mod! I would love to have YOURS ideas
